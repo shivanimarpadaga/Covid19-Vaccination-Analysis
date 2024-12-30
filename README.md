@@ -296,7 +296,4 @@ By implementing these recommendations, countries will be better positioned to ha
 
 
 
-Thank you for reading. 
-Kindly contact me for any discussion on projects or job offers on: 
-Email: michaeljeremiah124@gmail.com
-Phone: 2347066644028
+
